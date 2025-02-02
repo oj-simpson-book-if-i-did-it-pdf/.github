@@ -2,9 +2,10 @@
 
 ![Frost Land Survival](https://playghar.com/wp-content/uploads/2025/02/if-i-didi-it.png)
 
-[![Download Now](https://img.shields.io/badge/Download-Now-red?style=for-the-badge)]([https://playghar.com/frost-land-survival-v1-50-26-mod-apk/](https://playghar.com/o-j-simpsons-if-i-did-it-pdf/))
+[![Download Now](https://img.shields.io/badge/Download-Now-red?style=for-the-badge)](https://playghar.com/o-j-simpsons-if-i-did-it-pdf/)
 
-[![Download Now](https://img.shields.io/badge/Download-Now-red?style=for-the-badge)]([https://playghar.com/frost-land-survival-v1-50-26-mod-apk/](https://playghar.com/o-j-simpsons-if-i-did-it-pdf/))
+[![Download Now](https://img.shields.io/badge/Download-Now-red?style=for-the-badge)](https://playghar.com/o-j-simpsons-if-i-did-it-pdf/)
+
 
 Few books in history have sparked as much controversy as *If I Did It* by O.J. Simpson. Originally planned for release in 2006, the book was marketed as a "hypothetical" confession, detailing how Simpson *would have* committed the infamous 1994 murders of his ex-wife, Nicole Brown Simpson, and her friend, Ron Goldman—**if** he had been the killer. The very concept of the book outraged the public, the victims’ families, and even many of Simpson’s former supporters.
 
